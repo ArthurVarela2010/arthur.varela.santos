@@ -9,7 +9,8 @@ Meu nome é Arthur Varela
 voce pode entrar em cotato pelo meu [@escola](arthur.varela.santos@escola.pr.gov.br)
 
 
-![](https://tenor.com/pt-BR/view/hi-gif-27137207)
+![](https://media1.tenor.com/m/R0D2MpGV-vwAAAAC/hi.gif)
+
 
 
 
