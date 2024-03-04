@@ -6,8 +6,9 @@ Meu nome é Arthur Varela
 - utilizo o este espaço para compartilhar meus projetos
 
 
-voce pode entrar em cotato pelo meu [@escola](arthur.varela.santos@escola.pr.gov.br)
+voce pode entrar em cotato pelo meu @escola:
 
+arthur.varela.santos@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/R0D2MpGV-vwAAAAC/hi.gif)
 
